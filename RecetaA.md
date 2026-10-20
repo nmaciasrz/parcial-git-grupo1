@@ -5,11 +5,11 @@ Pasta cremosa con champiñones
 <br><br>
 Ingredientes
 <br>
-- Doscientos gramos de pasta.
-- Una taza de champiñones laminados.
-- Media taza de crema de leche.
-- Dos dientes de ajo.
-- Una cucharada de aceite de oliva.
+- 200 (Doscientos) gramos de pasta.
+- 1 (Una) taza de champiñones laminados.
+- 1/2 (Media) taza de crema de leche.
+- 2 (Dos) dientes de ajo.
+- 1 (Una) cucharada de aceite de oliva.
 - Sal y pimienta al gusto.
 <br><br><br>
 Instrucciones
