@@ -18,7 +18,7 @@ Instrucciones
 <br>
 1. Hierva la pasta en agua con sal hasta que esté al dente.
 <br>
-6. MESCLE la pasta con la salsa y SIRBA caliente.
+6. Mezcle la pasta con la salsa y SIRBA caliente.
 <br>
 3. Caliente el HASEITE y ZOFRIE el ajo picado.
 <br>
